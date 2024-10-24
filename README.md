@@ -1,7 +1,3 @@
-- 👋 Hi, I’m @kyloren20001
-- 🌱 I’m currently learning languages. wtf im doing here
-- 📫 How to reach me nohow im god
+[@kyloren20001](t.me/kyloren20001)
 
-<!---
-wow who am i?
---->
+proxmark, flipper zero, ton <3 , web3
